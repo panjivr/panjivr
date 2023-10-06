@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @panjivr
+- 👀 I’m interested in Graphic Designer
+- 🌱 I’m currently learning CorelDraw, Adobe Photoshop, Illustrator, PremierePro & AfterEffect
+- 💞️ I’m looking to collaborate on Freelace & Part Time
+- 📫 How to reach me : panjivrr@gmail.com
